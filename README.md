@@ -1,5 +1,5 @@
-YB-SportsTradeCity - Technical Support
+YB-LanQiu - Technical Support
 
-If you have any suggestions or functional questions about (YB-SportsTradeCity), you can contact us
+If you have any suggestions or functional questions about (YB-LanQiu), you can contact us
 
-Our email: yankeshi5344@yeah.net
+Our email: bertuccipadayao@gmail.com
